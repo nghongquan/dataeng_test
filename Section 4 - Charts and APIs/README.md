@@ -1,0 +1,1 @@
+Please note that the number of recovered cases has remained at 0 since 5th August 2021.
